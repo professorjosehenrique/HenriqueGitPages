@@ -1,1 +1,0 @@
-# Posi-o-do-Ret-ngulo
